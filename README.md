@@ -1,0 +1,1 @@
+# Shuni asosiyga qoshish kerak
